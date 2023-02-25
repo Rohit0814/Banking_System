@@ -12,5 +12,4 @@ viii) delete your account
 
 
 
-
 ![Screenshot 2023-02-25 121004](https://user-images.githubusercontent.com/82315142/221343036-26ce7bcb-0502-4dbf-83ff-b8bb8427daf9.png)
